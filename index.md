@@ -39,6 +39,26 @@ Perhaps a well-intentioned rephrasing, in case I hadn't understood: "Where do yo
 
 "Oh?" Now it's starting to get interesting. Or perhaps just more awkward.
 
+
+
+---
+
+
+At parties, I dreaded the inveitable conversation starter: "So, what do *you* do?" 
+
+I would stutter and mumble. "I, uh, well, I guess I like neural nets, I don't know."
+
+Perhaps a well-intentioned rephrasing of what they were trying to get at, in case I hadn't understood: "Where do you work?" 
+
+"I don't."
+
+"Oh, so you're a student." A statement, not even a question.
+
+"No. Well, kinda. I mean, I haven't been in school since 10th grade."
+
+---
+
+
 Introductions
 --------------
 I should have my introduction down to a tee by this point. But every time 
